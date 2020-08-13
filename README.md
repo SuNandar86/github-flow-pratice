@@ -1,4 +1,4 @@
 # github-flow-pratice
 
-I am Su Nandar Htay
+I am Su Su.
 Blood Type is A.
